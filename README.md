@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Yasminchiu
-- 👀 I’m interested in gaming, wellness & a self proclaimed foodie.
+- 👀 I’m interested in dogs, gaming, wellness & a self proclaimed foodie.
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to network with individuals with similar interests
 - 📫 How to reach me yasminchiu1995@hotmail.co.uk
